@@ -1,0 +1,3 @@
+- 👋 Hey, I’m Bibś
+- 📚 I'm studying internet computing at ifc
+- 👀 Follow me on Instagram  @bibixsa
